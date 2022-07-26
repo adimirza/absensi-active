@@ -23,3 +23,17 @@ Penulisan
 - Sherly Deastuti
 - Wiku Agil Syahriar
 - Saddam Bin Husein
+- RIYAN
+- Riki Ahmad Fauji
+- WAZIAT MAR'I
+- Rudino Yusfian Mukkun
+- Suharyadi
+- Syahid Hussein
+- Taufan Harry Prasetyo
+- Siswandi Pirta
+- Selviatun Hasanah
+- Richard Pradana
+- usamah
+
+
+
