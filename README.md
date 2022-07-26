@@ -21,3 +21,4 @@ Penulisan
 - Syamsul Arbi
 - Taofik Krisdiyanto
 - Sherly Deastuti
+- Wiku Agil Syahriar
