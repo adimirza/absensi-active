@@ -20,3 +20,4 @@ Penulisan
 - Saeful Rizal
 - Syamsul Arbi
 - Taofik Krisdiyanto
+- Wiku Agil Syahriar
