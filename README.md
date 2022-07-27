@@ -34,6 +34,4 @@ Penulisan
 - Selviatun Hasanah
 - Richard Pradana
 - usamah
-
-
-
+- Yusuf Adi Mirzaman
